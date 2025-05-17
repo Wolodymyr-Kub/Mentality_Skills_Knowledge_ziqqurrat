@@ -1,1 +1,1 @@
-# Mentality_Skills_Knowledge_ziqqurrat
+# Mentality_Skills_Knowledge_ObNeSpynojU
